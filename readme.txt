@@ -1,1 +1,1 @@
-This is a readme text that i changed againfgjfgj 12334
+Hey ghetterking ghet out my GIthub!
